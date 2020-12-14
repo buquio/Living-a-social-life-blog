@@ -1,0 +1,1 @@
+##A blog exploring minimalism in life by how you can find simplicity in the life you are already living.
